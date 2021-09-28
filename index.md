@@ -1,55 +1,29 @@
-# Total Life Management
+# Holistic Life Management (HLM)
 
-**Digambar Bhandari**
-
-**2021-09-27**
-
-**Duration: 120 minutes**
-
-## Consulting
-
-Unhappy with job. Stagnancy. Less income. Health deterioration. 
-
-Aim of 20k/- as of now remaining in Dehradun with family. 
-
-Aim of health restoration. 
-
-Free education. 
-
-Told about Apiary and Mushroom production suiting Dehradun climate. 
-
-Advised about market development of products. 
-
-Training about above. 
-
-Meeting people at different places.
-
-## References
-
- 1.  Navdhaniya: Meet Dr Bhatt
- 2.  HESCO: Padmashree Anil Joshi 
- 3. Sikar Mushroom King: Motalal Sharma 
- 4. Jakhmola ji, Retd IFS, FRI, Vasant Vihar
- 5. Divya Rana, Mushroom Queen Dehradun
-
-## Education 
-
-1. Gift of Sanskrit environment at home for children. 
- 2. Padmashree Chamu Krishn Shastri and example of his child performing best in school. 
- 3. Akashwani Samachar (10-10 minutes)
- 4. Panini Ashtadhyayi for people to understand easily.
-
-## Sanskrit 
-
- 1.  Medha Michika ji from Japan: Computer Engineer who wrote book on BhagavadGita to teach Ashtadhyayi. 
- 2. Germany is doing the most work in Sanskrit. 
- 3. Dhara Par Layein Bhagwadbhasha: Book https://hindi.bharatavani.in/jnanakosha/dhara-par-laye-bhagvadbhasha/ and YouTube https://m.youtube.com/watch?v=nfi0jcxTNMY. 
+## General
  
-## Resource 
+ **INTRODUCTION**
 
-Discussion over - 
+Consulting, advice and discussion on life relevant topics including health, spirituality, tech, general/specific guidance and question. 
 
-1. Main material resource: Body and health. 
- 2. Main resource: Consciousness
- 
+Our team has been into HLM for long providing lasting help and counsel in diverse areas, even other than profession, money or professional growth. 
 
+Life is sum total. And thus, friends to support and receive positive vibes from in dire circumstances help boost to perform with enriched wisdom. 
+
+![hlmimg-01](hlmimg-01.png)
+
+## Specific
+
+**RECENT**
+
+### September 2021
+
+- [Digambar Bhandari ji](digambar-bhandari.md)
+
+## Join the Community
+
+Join our [Telegram Channel](https://t.me/holisticlifemanagement) to get [moderated](moderated-channel-benefits.md) information only. 
+
+## Voluntary Spirit Guidelines
+
+These [GUIDELINES](https://nehalsin.github.io/voluntary-spirit-guidelines/) are must to read and follow for holistic participation.
