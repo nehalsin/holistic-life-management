@@ -1,14 +1,20 @@
 # Ram Prakash
 
+Ram Prakash (name changed), village near Dehradun
+
+Age: 35 years; job in BPO.
+
+## Talk
+
 **2021-09-27**
 
 **Duration: 120 minutes**
 
 ## Consulting
 
-Unhappy with job. Stagnancy. Less income. Health deterioration. 
+Unsatisfied with job. Stagnancy. Modest income. Health deterioration.
 
-Aim of 20k/- as of now remaining in Dehradun with family. 
+Aim of earning INR 20k per month as of now 
 
 Aim of health restoration. 
 
