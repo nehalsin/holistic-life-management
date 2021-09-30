@@ -18,7 +18,8 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 
 ### September 2021
 
-- [Ram Prakash](ram-prakash.md)
+- [Ram ](ram.md)
+- [Hari](hari.md)
 
 ## Join the Community
 
