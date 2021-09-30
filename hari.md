@@ -1,5 +1,7 @@
 # Hari
 
+(Name changed)
+
 Classical Music and Martial Arts Pursuits
 
 Currently in Tilwada Village, Uttarakhand
@@ -11,7 +13,7 @@ Currently in Tilwada Village, Uttarakhand
  1.  Aatm Sanyam Yoga/Dhyan Yoga Chapter 6 
  2. Yoga Sutra BMM 
  3. Iyenger books. 
- 4. Panini Ashtadhyayi BMMs
+ 4. [Panini Ashtadhyayi BMMs](https://nehalsin.github.io/beautifulmindmaps/#ashtadhyayi)
  5.  Yoga Sutra Musical on YouTube
  6.  Gita Press Anvaya Padchhed.
  7. Meet local friend. 
