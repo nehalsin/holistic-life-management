@@ -36,8 +36,9 @@ Two ways. Left, right. Friend has bike. May come to pick. Satvik friend. Wife is
 ## Problem with Uncle & other points
 
 Not letting Hari leave
+
 Shaitani pravrti
-(**Utshrankhal** can be said.)
+(Utshrankhal can be said.)
 
 Must meet local friend as he might be knowing uncle. 
 
