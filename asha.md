@@ -2,7 +2,7 @@
 
 (Name changed)
 
-Senior Teacher. Age about 60 years. 
+Senior Teacher in Pune. Age about 60 years. 
 
 Based on talk on 2021-09-30.
 
