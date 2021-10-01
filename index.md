@@ -16,9 +16,9 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 
 ### September 2021
 
-- [Ram ](ram.md)
-- [Hari](hari.md)
-- [Asha](asha.md)
+- [Unhealthy Ram](unhealthy-ram.md)
+- [Musical Hari](musical-hari.md)
+- [Lonely Asha](lonely-asha.md)
 
 ## Join the Community
 
