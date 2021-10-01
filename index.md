@@ -18,7 +18,7 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 
 - [Unhealthy Ram](unhealthy-ram.md)
 - [Musical Hari](musical-hari.md)
-- [learning-mohan](learning-mohan.md)
+- [Learning Mohan](learning-mohan.md)
 - [Lonely Asha](lonely-asha.md)
 
 ## Join the Community
