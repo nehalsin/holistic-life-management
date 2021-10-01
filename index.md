@@ -14,12 +14,11 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 
 ## Specific
 
-**RECENT**
-
 ### September 2021
 
 - [Ram ](ram.md)
 - [Hari](hari.md)
+- [Asha](asha.md)
 
 ## Join the Community
 
