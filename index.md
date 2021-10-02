@@ -12,14 +12,14 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 
 ![hlmimg-01](hlmimg-01.png)
 
-## Specific
+## Inspiring Stories
 
-### September 2021
-
-- [Unhealthy Ram](unhealthy-ram.md)
-- [Musical Hari](musical-hari.md)
-- [Learning Mohan](learning-mohan.md)
-- [Lonely Asha](lonely-asha.md)
+#### September 2021
+ 1. **Quest of love & peace:** [Asha, 60, artist, lecturer, Bangalore](asha.md)
+ 2. **Self sacrifice to self care:** [Babita, 45, pets, gardener, trekker, Mumbai](babita.md)
+ 3. **Back to natural life:** [Dinesh, 40, aspiring micro-farmer, Panchkula](dinesh.md)
+ 4. **Classical Music Aspirant:** [Vinay, 26, Yoga, Taekwondo, Varanasi](vinay.md)
+5. **Changing the world - Inspiring young minds:** [Ganesh, 45, remote Himalayan village](ganesh.md)
 
 ## Join the Community
 
