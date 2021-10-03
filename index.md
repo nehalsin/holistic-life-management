@@ -4,7 +4,7 @@
  
  **INTRODUCTION**
 
-Counseling, advice and discussion on life relevant topics including health, spirituality, tech, general/specific guidance and question. 
+Counseling, advice and discussion on life relevant topics including health, [practical spirituality](practical-spirituality.md), tech, general/specific guidance and question. 
 
 Our team has been into HLM for long providing lasting help and counseling in diverse areas, even other than profession, money or professional growth. 
 
@@ -14,7 +14,7 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 
 ## Inspiring Stories
 
-#### September 2021
+### September 2021
  1. **Quest of love & peace:** [Asha, 60, artist, lecturer, Bangalore](asha.md)
  2. **Self sacrifice to self care:** [Babita, 45, pets, gardener, trekker, Mumbai](babita.md)
  3. **Back to natural life:** [Dinesh, 40, aspiring micro-farmer, Panchkula](dinesh.md)
