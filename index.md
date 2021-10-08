@@ -21,6 +21,9 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
  4. **Classical Music Aspirant:** [Vinay, 26, Yoga, Taekwondo, Varanasi](vinay.md)
 5. **Changing the world - Inspiring young minds:** [Ganesh, 45, remote Himalayan village](ganesh.md)
 
+### October 2021 
+1. **Joining Farming School:** [Satish,50, IT Industry, Shringeri](satish.md)
+
 ## Join the Community
 
 Join our [Telegram Channel](https://t.me/holisticlifemanagement) to get [moderated](moderated-channel-benefits.md) information only. 
