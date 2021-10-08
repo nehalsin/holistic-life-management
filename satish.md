@@ -46,7 +46,7 @@ Farming also paying you. Live in a good environment. Vegetables. Not a costly ho
 
 ### Child Higher Studies Counseling 
 
-Son will give class 12 boards. Likes biology but doesn't want to do medicine. Have dialogue with Hemanta Naik. He was into Life Sciences. Engineering in biotechnology. IISc. BSc required or BTech. MTech in IISc. Interested in research. Can also give IIT-JEE. IISER. These are focused on science and research. Need not do BTech. 
+Son will give class 12 boards. Likes biology but doesn't want to do medicine. Have dialogue with Hiren. He was into Life Sciences. Engineering in biotechnology. IISc. BSc required or BTech. MTech in IISc. Interested in research. Can also give IIT-JEE. IISER. These are focused on science and research. Need not do BTech. 
 
 Both ways pressure. Telling to do engineering or not to do engineering. There is nothing right or wrong about it. 
 
