@@ -6,7 +6,7 @@
 
 Counseling, advice and discussion on life relevant topics including health, [practical spirituality](practical-spirituality.md), tech, general/specific guidance and question. 
 
-Our team has been into HLM for long providing lasting help and counseling in diverse areas, even other than profession, money or professional growth. 
+Our team has been into HLM for long, providing lasting help and counseling in diverse areas, even other than profession, money or professional growth. 
 
 Life is sum total. And thus, friends to support and receive positive vibes from in dire circumstances help boost to perform with enriched wisdom. 
 
