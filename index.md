@@ -23,6 +23,7 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 
 ### October 2021 
 1. **Joining Farming School:** [Satish, 50, IT Industry, Shringeri](satish.md)
+2. **Thirst of Self Realization:** [Arun, 62, Retired, NCR](arun.md)
 
 ## Join the Community
 
