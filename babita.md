@@ -93,8 +93,6 @@ Sponsor.
 
 #### Health
 
-Local people discussion. 
-
 Talk to Anjana about knot. 
 
 Check Haemoglobin in blood for hair loss after Covid. Protein deficiency.
@@ -118,6 +116,8 @@ No one's identity revealed.
 Thus, phone number not given. 
 
 Maximum things on the spot. 
+
+Local people discussion. 
 
 Can tell about inner growth if only asked. 
 
