@@ -8,6 +8,8 @@
 
 ### Babita
 
+![babita-health-2021-10-11](babita-health-2021-10-11.png)
+
 #### Health
 
 Antibiotics.
@@ -105,7 +107,7 @@ We grow old because we stop playing.
 
 Right now link is for trusted people. 
 Telegram link for group formation. 
-Platform should be Hijacked. 
+Platform should not be Hijacked. 
 Person of unknown and motivation unknown. 
 
 **Plastic, intoxication, tourism groups not allowed.** 
@@ -142,8 +144,9 @@ Good photographer. These days phones are well equipped.
 
 Make map on paper. 
 
-Growth in life will be possible without Babita's husband. Most important to go without Babita's husband. Praveen is intelligent. Husband is addictive. Nothing to be done with Husband as he does everything. Own growth will not happen with Babita's husband. 
+**Growth in life will be possible without Babita's husband.** Most important to go without Babita's husband. Praveen is intelligent. Husband is addictive. Nothing to be done with Husband as he does everything. Own growth will not happen with Babita's husband. 
 Sitting on elephant. Come on ground. No importance going with Husband. No dependence on Babita's husband. 
-Handicap without Husband. 
 
-Ankur's admission. Didn't use mom's source. He knew this was important to tell him. Then told he passed. 
+Ankur's admission. Didn't use mom's source. He knew this was important to tell. Then told he passed. 
+
+![babita-padyatra-2021-10-11](babita-padyatra-2021-10-11.png)
