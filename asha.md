@@ -102,23 +102,8 @@ No disgrace.
 **Grace exists.** 
 **Rest is dust.**
 
-Tum paapi ho. Mai udhaar karne wala ho. Agents. We are divine. You are divine. 
-Whosoever creates confusion. 
-
-Physical labor extraction as agenda of society. 
-Whether you feel peaceful or not is of no use to society. **Physical work is single agenda.** Kartavya. Some nonsense. Bodies. 
-Social agenda. Grace/disgrace. To be held. Society holds in contradictions. Dwand. Society gives always **confusing signals**. 
-
-Tell me (person to be obeyed) truth always. But implying Vyavhaar kushalta. Beautiful word. Practical, popular these days. 
-Crack. Conflict. 
-In reality, people are tied between theory/practical. 
-
 No meanings of words. Dictionary meaning different. 
 
-Place of stay too good. Kaane saab. Parliament. Padma Vibhushan. Book. His book used as reference in Parliament. 
-Constitution is departure from duties to rights. Hamare vichar me kartavya ki baat thi, ab adhikar ki baat ho gyi hai.
-
-Architects. Tree stays in livin' room. 
 
 
 
