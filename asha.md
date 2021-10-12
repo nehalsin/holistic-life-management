@@ -1,30 +1,32 @@
 # Quest of love & peace: Asha, 60, artist, lecturer, Bangalore
 
-Based on talk on 2021-09-30.
+## Based on talk on 2021-09-30
 
-## Loneliness
+<details markdown='1'><summary>Click to expand!</summary>
 
-### Asha
+### Loneliness
+
+#### Asha
  1.  Social beings. 
  2. Being lonely may seem neurotic. 
- 3. Confusion by reading Osho, Sadhguru. 
+ 3. Confusion by reading different gurus. 
  
-###  Significant Points
+####  Significant Points
  3. What is **us** in practicality? 
  4. What people say, books also say that. 
  5. What is own definition of self. What is my being. Not to impress others. Not to speak on stage. 
  6. Jataka katha
  7.  Shrimadbhagawatam: Mother, father, wife, children, river, fish, insects, fire, air, etc ownership. After thinking too much that's the only question who's body it is? 
  8. Own definition to be defined by ownself. 
- 9. IISc Bangalore. Big Prof. Son had mental problem. Power placement. What we know and what we understand is the most important. Son big in size. Pathetic to watch son. Could be IQ question too. If someone would ask would you want to be son of that guy? He is what he does not know. He is asking 50/-, 10/-. We can't scold him. 
+ 9. Famous institution. Big Prof. Son had mental problem. Power placement. What we know and what we understand is the most important. Son big in size. Pathetic to watch son. Could be IQ question too. If someone would ask would you want to be son of that guy? He is what he does not know. He is asking 50/-, 10/-. We can't scold him. 
 10. Basis of any question meaning: हमारी क्या अस्मिता है? Asmita means identity in Sanskrit. अहम् कः? 
 11. If question of identity is settled then other questions are also settled. 
-12. Dhyan beech mazaar mein. Said by Osho. 
+12. Dhyan beech mazaar mein. Popular quote.
 13. Level mismatching. Sometimes can be deliberate. 
 14. We live in own consciousness. 
 15. Difference between success and happiness. 
 16. Bangalore is place of success. Why is it suicide capital? EQ problem. 
-17. Suicide was not due to failure in IIT. Identity issue. Question of identity biggest? Ego. 
+17. Suicide was not due to failure in big institutions like IIT. Identity issue. Question of identity biggest? Ego. 
 18. What am I seeing? What is my world? 
 19. Are you at peace with yourself or not? 
 20. Identity crisis. The moment you know what you're then you're at peace with yourself. 
@@ -51,18 +53,72 @@ Based on talk on 2021-09-30.
 41. Panini standardization. 
 42. Objective analysis of Sanskrit. 
 43. 7.2 million Sanskrit manuscripts still left. Sharda lipi. Kashmir. 13-14 know it. Brahmi lipi. 
-44. Sanskrit as core in understanding. 
-45. Cannot ignore Sanskrit. 
+44. **Sanskrit as core in understanding.** 
+45. **Cannot ignore Sanskrit.**
 46. "Got direction after talking." What direction? 
 47. Anvaya Padchhed is not interpretation. 
 48. No one can translate. 
-49. Iskcon. Has direction. Has agenda. 
-50. "One fine day." 
-51. If not me then who. If not now then when. 
+49. Organizations like Iskcon. Has direction. Has agenda. 
+50. "One fine day." Told by Asha. 
+51. **If not me then who. If not now then when.** 
 
-### Actionable Points
+#### Actionable Points
 
 1. Write love letters to ownself. Have dialogue with ownself.
 2. Eknathi Bhagavat. Maharashtra. Shrimadbhagawatam. Read Shrimadbhagawatam completely. Read like a novel only. Gitapress. Only Hindi. Sanskrit/Hindi both. 
 3. Ekadash Skandh. 
 4. Anvaya Padchhed Gitapress
+
+</details>
+
+## Based on talk on 2021-10-11
+
+### Asha 
+
+What is Grace? 
+
+Disgrace. 
+
+### Points of discussion
+
+Questions given to Asha. 
+
+What is disgrace? 
+
+What is culture? 
+
+Actual grace is never disgrace. 
+Can't do anything about it. 
+
+World's grace is of no use. 
+
+There is nothing other than grace. 
+
+Close, similar, almost. So many gaps. **Approximations**. Margin of error. 
+
+No disgrace. 
+**Talkin' about absolute.** 
+
+**Grace exists.** 
+**Rest is dust.**
+
+Tum paapi ho. Mai udhaar karne wala ho. Agents. We are divine. You are divine. 
+Whosoever creates confusion. 
+
+Physical labor extraction as agenda of society. 
+Whether you feel peaceful or not is of no use to society. **Physical work is single agenda.** Kartavya. Some nonsense. Bodies. 
+Social agenda. Grace/disgrace. To be held. Society holds in contradictions. Dwand. Society gives always **confusing signals**. 
+
+Tell me (person to be obeyed) truth always. But implying Vyavhaar kushalta. Beautiful word. Practical, popular these days. 
+Crack. Conflict. 
+In reality, people are tied between theory/practical. 
+
+No meanings of words. Dictionary meaning different. 
+
+Place of stay too good. Kaane saab. Parliament. Padma Vibhushan. Book. His book used as reference in Parliament. 
+Constitution is departure from duties to rights. Hamare vichar me kartavya ki baat thi, ab adhikar ki baat ho gyi hai.
+
+Architects. Tree stays in livin' room. 
+
+
+
