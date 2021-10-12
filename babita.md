@@ -8,7 +8,7 @@
 
 ### Babita
 
-![babita-health-2021-10-11](babita-health-2021-10-11.png)
+![babitahealth-2021-10-11](babitahealth-2021-10-11.png)
 
 #### Health
 
@@ -32,8 +32,6 @@ Pain less. Swelling 80% over.
 Test by tissue. 
 
 Lessened by antibiotic. But other side effects. 
-
-Knot on gland. Left. 
 
 No local application. 
 
@@ -147,6 +145,6 @@ Make map on paper.
 **Growth in life will be possible without Babita's husband.** Most important to go without Babita's husband. Praveen is intelligent. Husband is addictive. Nothing to be done with Husband as he does everything. Own growth will not happen with Babita's husband. 
 Sitting on elephant. Come on ground. No importance going with Husband. No dependence on Babita's husband. 
 
-Ankur's admission. Didn't use mom's source. He knew this was important to tell. Then told he passed. 
+Ankur's admission. Didn't use mom's source. He knew this was important to tell. Then was told, he passed. 
 
 ![babita-padyatra-2021-10-11](babita-padyatra-2021-10-11.png)
