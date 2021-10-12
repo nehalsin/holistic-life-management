@@ -57,7 +57,7 @@ Kunjal 3-4 times in a week.
 
 December 1 padyatra. Let's wait for another week. Confirm by 20 October. (Starting from Alandi becomes 200 km. Dr Mukund. Routes. Champions of padyatra.) 
 
-Sangamneher - Triumbkeshwar. 97 km in 10-12 days. Completely by Nov 19. Kartik Purnima. 8-10-11km gaping villages. Stay in temples. First shot till Triumbkeshwar. 
+Sangamneher - Triumbkeshwar. 97 km in 10-12 days. Completely by Nov 19. Kartik Purnima. 8-11 km gaping villages. Stay in temples. First shot till Triumbkeshwar. 
 One yatra per month. 6 stops in 6 months. 
 
 10000 steps. Target. Everyday. 
@@ -134,7 +134,7 @@ Route changes after Wardha.
 Make map from Pune to Wardha. Nasik will also come. This route will be different. 
 Nasik to Igatpuri. Beautiful hill station. 
 
-Gujaratis. Naturopathy. 
+Gujarat. Naturopathy. 
 
 Sponsor? 
 
