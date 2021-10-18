@@ -22,7 +22,7 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 5. **Changing the world - Inspiring young minds:** [Ganesh, 45, remote Himalayan village](ganesh.md)
 
 ### October 2021 
-1. **Joining Farming School:** [Sachin, 50, IT Industry, Shringeri](satish.md)
+1. **Joining Farming School:** [Sachin, 50, IT Industry, Shringeri](sachin.md)
 2. **Thirst of Self Realization:** [Arun, 62, Retired, NCR](arun.md)
 
 ## Join the Community
