@@ -1,4 +1,4 @@
-# Joining Farming School: Satish, 50, IT Industry, Shringeri
+# Joining Farming School: Sachin, 50, IT Industry, Shringeri
 
 ## 2021-10-06 
 
@@ -10,13 +10,13 @@ Weekends family will go. Big work to someone who can do.
 
 Aim LAND COST APPRECIATION? No. 
 
-Satish will buy cow. 
+Sachin will buy cow. 
 
 One acre is more than sufficient. 
 
 Storing water. 
 
-Next year targeting. Son going to college. Satish goes into farming college. 
+Next year targeting. Son going to college. Sachin goes into farming college. 
 
 ### Farming Management Counseling
 
@@ -59,7 +59,7 @@ Many decisions already taken indirectly when child first sent to school. Child g
 
 ### Nature Over Years
 
-Satish has not changed. Nature is same. 
+Sachin has not changed. Nature is same. 
 
 Some people change. Because of so many reasons. 
 </details>
