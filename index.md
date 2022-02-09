@@ -25,6 +25,9 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 1. **Joining Farming School:** [Sachin, 50, IT Industry, Shringeri](sachin.md)
 2. **Thirst of Self Realization:** [Arun, 62, Retired, NCR](arun.md)
 
+### February, 2022
+1. **Life Changing Moment:**  [Mohan, 35, Entrepreneur](mohan.md) 
+
 ## Join the Community
 
 Join our [Telegram Channel](https://t.me/holisticlifemanagement) to get [moderated](moderated-channel-benefits.md) information only. 
