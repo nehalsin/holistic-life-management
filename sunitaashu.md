@@ -12,7 +12,7 @@ HLM over Bhagavat Gita
  6.  When a person is able to heartily relate to a particular verse in Bhagavat Gita then that book becomes their book instead of looking like a far fetched unattainable dream of spirituality. 
  7. What is enforced is religion what comes naturally is spirituality. So read as much as you can without thinking that each day one chapter needs be read. 
  8. _Who knows whether Mahabharata actually happened?_ That is immaterial whether it happened or not. Bhagavat Gita talks about framework not event. Whether you trade tomatoes or potatoes, your business model or accounts discipline remains a framework that is independent of actual transactions! 
- 9. _When a relative came from south he arrived with Christian rosary and complete transformed look! I didn't appreciate that. He wasn't doing anything of that sort back here. _
+ 9. _When a relative came from south he arrived with Christian rosary and complete transformed look! I didn't appreciate that. He wasn't doing anything of that sort back here._
  10. What is enforced is not permanent, what is understood or realised remains lifelong.
  11. We are into the spiritual work by means of knowledge representation and knowledge process. Gita contains formulae whereas the Bhagavat is explanation of Gita by the way of captivating stories. Both compositions are by Vedavyasa, both comprise of verses and message of Lord Krishna.
  12. You have been given a complete packages where in one book you hav verses for correct pronunciation and meaning, Gita Anvaya Padchhed; in the other you have relevant explanation, Gita Prabodhini. 
