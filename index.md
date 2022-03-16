@@ -29,6 +29,9 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 1. **Life Changing Moment:**  [Mohan, 35, Entrepreneur](mohan.md) 
 2. **Modern couple meets Bhagavat Gita:** [Sunita Ashu, 40-45, Business Family](sunitaashu.md)
 
+### March 2022
+1. **Right philosophy is the crux:** [Bonita ji - Vinay, mother son duo](bonitaji-vinay.md)
+
 ## Join the Community
 
 Join our [Telegram Channel](https://t.me/holisticlifemanagement) to get [moderated](moderated-channel-benefits.md) information only. 
