@@ -31,6 +31,7 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 
 ### March 2022
 1. **Right philosophy is the crux:** [Bonita ji - Vinay, mother son duo](bonitaji-vinay.md)
+2. **Be your own best friend:** [Krish, 22, Student](krish.md)
 
 ## Join the Community
 
