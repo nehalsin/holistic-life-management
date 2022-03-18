@@ -2,7 +2,7 @@
 
 2022-03-17 
 
-B.Tech. Electrical engineering
+B.Tech. Electrical Engineering
 
 Preparing for GATE, for higher studies and job in PSU
 
