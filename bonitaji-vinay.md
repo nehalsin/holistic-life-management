@@ -15,4 +15,6 @@
 11. Inner dynamics. Singing and playing together. Both won't go wrong. Probability is less. Timing control support with harmonium. Mind body coordination. 
 12. Valuable discussion on Zero Budget Life and concept of Empowerment. Empowerment is of mind, not by revolution on road. 
 13. Healthy and right budget of food keeping in mind economies of time, effort and resources. Zero Budget Life Program is all about Need. 
-14. Babita ji needs Chakotra. 
+14. Lowest human behaviour witnessed during Covid times 2021. 
+15. A big farmer playing classical music for his cows. Care for animals and sensitivity for ecosystem. 
+16. Babita ji needs Chakotra. 
