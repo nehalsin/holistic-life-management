@@ -34,6 +34,10 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 1. **Right philosophy is the crux:** [Bonita ji - Vinay, mother son duo](bonitaji-vinay.md)
 2. **Be your own best friend:** [Krish, 22, Student](krish.md)
 
+### April 2022 
+
+1. **Live with Purpose:** [Durgesh, Mountain Resort Entrepreneur, 25, Uttarakhand](durgesh.md)
+
 ## Join the Community
 
 Join our [Telegram Channel](https://t.me/holisticlifemanagement) to get [moderated](moderated-channel-benefits.md) information only. 
