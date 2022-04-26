@@ -38,6 +38,7 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 
 1. **Live with Purpose:** [Durgesh, Mountain Resort Entrepreneur, 25, Uttarakhand](durgesh.md)
 2. **Queries by a friend:** [Bonita, Actor](bonita.md)
+3. **Basis of bliss is creating beauty:** [Leela, Artist, Mother of three](leela.md)
 
 ## Join the Community
 
