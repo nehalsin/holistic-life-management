@@ -35,10 +35,12 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 2. **Be your own best friend:** [Krish, 22, Student](krish.md)
 
 ### April 2022 
-
 1. **Live with Purpose:** [Durgesh, Mountain Resort Entrepreneur, 25, Uttarakhand](durgesh.md)
 2. **Queries by a friend:** [Bonita, Actor](bonita.md)
 3. **Basis of bliss is creating beauty:** [Leela, Artist, Mother of three](leela.md)
+
+### May 2022
+1. **Village Development Starting With Self:** [Parashar Oberoi, 40, Village Entrepreneur](parashar-oberoi.md)
 
 ## Join the Community
 
