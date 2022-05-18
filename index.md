@@ -41,6 +41,7 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 
 ### May 2022
 1. **Village Development Starting With Self:** [Parashar Oberoi, 40, Village Entrepreneur](parashar-oberoi.md)
+2. **Seeking bliss:** [Manav, 42, a hobby traveler](manav.md)
 
 ## Join the Community
 
