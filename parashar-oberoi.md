@@ -61,7 +61,13 @@ Two-Four people can sit on that rock for meditation.
 9. Our role as **project enablers**. 
 10. Our visit in line with schools and colleges' visits' schedule to be designed and planned earlier. 
 
-
+## 2022-05-19
+1. Wants to grow fruit trees such as Kiwi, Plum. Also has to sow Ginger, Garlic. Chilly sowed.
+2. Govt. will be implementing ~~Deep~~ [Drip Irrigation](https://en.m.wikipedia.org/wiki/Drip_irrigation) in the farm. 
+3. **Combined** Gurukula may be possible. Funding by a business. 
+4. ToDo: 
+    - [ ] Clear Videos of Farm and Land.
+    - [ ] Business Contract with Architect.
 
 
 
