@@ -43,6 +43,9 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 1. **Village Development Starting With Self:** [Parashar Oberoi, 40, Village Entrepreneur](parashar-oberoi.md)
 2. **Seeking bliss:** [Manav, 42, a hobby traveler](manav.md)
 
+### July 2022
+1. **Worthy aim for young, bright mind:** [Garima, 14, Class 9 Student](garimahlm.png)
+
 ## Join the Community
 
 Join our [Telegram Channel](https://t.me/holisticlifemanagement) to get [moderated](moderated-channel-benefits.md) information only. 
