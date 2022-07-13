@@ -44,7 +44,7 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 2. **Seeking bliss:** [Manav, 42, a hobby traveler](manav.md)
 
 ### July 2022
-1. **Worthy aim for young, bright mind:** [Garima, 14, Class 9 Student](garimahlm.png)
+1. **Worthy aim for young, bright mind:** [Garima, 14, Class 9 Student](garima.md)
 
 ## Join the Community
 
