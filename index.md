@@ -46,6 +46,9 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 ### July 2022
 1. **Worthy aim for young, bright mind:** [Garima, 14, Class 9 Student](garima.md)
 
+### August 2022
+1. **Slow Windows Operating System problem:** [Devansh, 45, Canada](devansh.md)
+
 ## Join the Community
 
 Join our [Telegram Channel](https://t.me/holisticlifemanagement) to get [moderated](moderated-channel-benefits.md) information only. 
