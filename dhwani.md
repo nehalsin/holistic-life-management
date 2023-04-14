@@ -16,7 +16,7 @@
 13. Gifted Bhagavad Gita Anvaya Padcched. Briefed how to read the book. 
 14. Memorization techniques. Learn Bhagavad Gita verses. Showed own examples of using color. 
 15. Life is too small for problems. Celebrate each moment. 
-16. Only talk about yourself betterment. (Gita 5.11)
+16. Only talk about your self betterment. (Gita 5.11)
 17. Read [Jonathan Livingston Seagull](https://archive.org/stream/B-001-001-075/B-001-001-075_djvu.txt). 
 
 ## Short movies watched
