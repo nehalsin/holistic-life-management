@@ -18,6 +18,8 @@
 15. Life is too small for problems. Celebrate each moment. 
 16. Only talk about your self betterment. (Gita 5.11)
 17. Read [Jonathan Livingston Seagull](https://archive.org/stream/B-001-001-075/B-001-001-075_djvu.txt). 
+18. You keep talking about _sambhar_, in the mean time we will enjoy the _sambhar_. _Don't fall for mere intellectualism, live life in present._ 
+19. Auto immune disease - when body cells start killing own cells. 
 
 ## Short movies watched
  1.  Movie: [Ferdinand the bull](https://m.youtube.com/watch?v=UN62cxSs5Q8)
