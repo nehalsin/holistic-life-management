@@ -48,7 +48,7 @@
  3. Grand father lives in Radhaswami Beas since 1947. DoB 1939. Dadi DoB 1940.
  
 ## Dhwani 
- 1. Will be memorizing Bhagavad Gita as per Ashish ji.
+ 1. Will be memorizing Bhagavad Gita as per a friend. 
  2. Says herself is out of focus, doesn't know what to do in career, doesn't know what to do tomorrow, feels she is not beautiful etc.
  3. Said she likes public speaking. Was asked if she has a YouTube channel. 
  4. Notes made by her of her problems and solutions. 
