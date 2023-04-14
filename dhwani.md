@@ -20,9 +20,9 @@
 17. Read [Jonathan Livingston Seagull](https://archive.org/stream/B-001-001-075/B-001-001-075_djvu.txt). 
 
 ## Short movies watched
- 1.  Movie: Ferdinand the bull
+ 1.  Movie: [Ferdinand the bull](https://m.youtube.com/watch?v=UN62cxSs5Q8)
  2.  Told to verify and research why it was banned in WW2? 
- 3. Movie: Do Flowers Fly? 
+ 3. Movie: [Do Flowers Fly?](https://m.youtube.com/watch?v=ymaexiLJelU) 
  4. Discussion about these. 
  
 ## Introduction to [sanskrit.org.in](sanskrit.org.in)
