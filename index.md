@@ -14,6 +14,38 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 
 ## Inspiring Stories
 
+
+### April 2023
+1. **Live life with Masti:** [Dhwani and parents 2023-04-14](dhwani.md)
+
+### August 2022
+1. **Slow Windows Operating System problem:** [Devansh, 45, Canada](devansh.md)
+
+### July 2022
+1. **Worthy aim for young, bright mind:** [Garima, 14, Class 9 Student](garima.md)
+
+### May 2022
+1. **Village Development Starting With Self:** [Parashar Oberoi, 40, Village Entrepreneur](parashar-oberoi.md)
+2. **Seeking bliss:** [Manav, 42, a hobby traveler](manav.md)
+
+### April 2022 
+1. **Live with Purpose:** [Durgesh, Mountain Resort Entrepreneur, 25, Uttarakhand](durgesh.md)
+2. **Queries by a friend:** [Bonita, Actor](bonita.md)
+3. **Basis of bliss is creating beauty:** [Leela, Artist, Mother of three](leela.md)
+
+### March 2022
+1. **Right philosophy is the crux:** [Bonita ji - Vinay, mother son duo](bonitaji-vinay.md)
+2. **Be your own best friend:** [Krish, 22, Student](krish.md)
+
+### February, 2022
+1. **Life Changing Moment:**  [Mohan, 35, Entrepreneur](mohan.md) 
+2. **Modern couple meets Bhagavat Gita:** [Sunita Ashu, 40-45, Business Family](sunitaashu.md)
+3. **Fundamentals of Law:** [Anamika, 21, Law Student](anamika.md)
+
+### October 2021 
+1. **Joining Farming School:** [Sachin, 50, IT Industry, Shringeri](sachin.md)
+2. **Thirst of Self Realization:** [Arun, 62, Retired, NCR](arun.md)
+
 ### September 2021
  1. **Quest of love & peace:** [Asha, 60, artist, lecturer, Bangalore](asha.md)
  2. **Self sacrifice to self care:** [Babita, 45, pets, gardener, trekker, Mumbai](babita.md)
@@ -21,36 +53,6 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
  4. **Classical Music Aspirant:** [Vinay, 26, Yoga, Taekwondo, Varanasi](vinay.md)
 5. **Changing the world - Inspiring young minds:** [Ganesh, 45, remote Himalayan village](ganesh.md)
 
-### October 2021 
-1. **Joining Farming School:** [Sachin, 50, IT Industry, Shringeri](sachin.md)
-2. **Thirst of Self Realization:** [Arun, 62, Retired, NCR](arun.md)
-
-### February, 2022
-1. **Life Changing Moment:**  [Mohan, 35, Entrepreneur](mohan.md) 
-2. **Modern couple meets Bhagavat Gita:** [Sunita Ashu, 40-45, Business Family](sunitaashu.md)
-3. **Fundamentals of Law:** [Anamika, 21, Law Student](anamika.md)
-
-### March 2022
-1. **Right philosophy is the crux:** [Bonita ji - Vinay, mother son duo](bonitaji-vinay.md)
-2. **Be your own best friend:** [Krish, 22, Student](krish.md)
-
-### April 2022 
-1. **Live with Purpose:** [Durgesh, Mountain Resort Entrepreneur, 25, Uttarakhand](durgesh.md)
-2. **Queries by a friend:** [Bonita, Actor](bonita.md)
-3. **Basis of bliss is creating beauty:** [Leela, Artist, Mother of three](leela.md)
-
-### May 2022
-1. **Village Development Starting With Self:** [Parashar Oberoi, 40, Village Entrepreneur](parashar-oberoi.md)
-2. **Seeking bliss:** [Manav, 42, a hobby traveler](manav.md)
-
-### July 2022
-1. **Worthy aim for young, bright mind:** [Garima, 14, Class 9 Student](garima.md)
-
-### August 2022
-1. **Slow Windows Operating System problem:** [Devansh, 45, Canada](devansh.md)
-
-## April 2023
-1. **Live life with Masti:** [Dhwani and parents 2023-04-14](dhwani.md)
 
 ## Join the Community
 

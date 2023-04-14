@@ -17,6 +17,7 @@
 14. Memorization techniques. Learn Bhagavad Gita verses. Showed own examples of using color. 
 15. Life is too small for problems. Celebrate each moment. 
 16. Only talk about yourself betterment. (Gita 5.11)
+17. Read [Jonathan Livingston Seagull](https://archive.org/stream/B-001-001-075/B-001-001-075_djvu.txt). 
 
 ## Short movies watched
  1.  Movie: Ferdinand the bull
@@ -25,10 +26,10 @@
  4. Discussion about these. 
  
 ## Introduction to [sanskrit.org.in](sanskrit.org.in)
- 1.  Showed Mathematics, Physics, Education pages. 
- 2. "Why Sanskrit" page shown. 
- 3. Professional bio shown. Read by mother and daughter. 
- 4. Lecture Demonstrations page shown. 
+ 1.  Showed [Mathematics](https://sanskrit.org.in/sme.html), [Physics](https://sanskrit.org.in/spe.html), [Education](https://sanskrit.org.in/sec.html) pages. 
+ 2. "[Why Sanskrit](https://sanskrit.org.in/why-sanskrit.html)" page shown. 
+ 3. [Professional bio](https://sanskrit.org.in/alabhya-prof.pdf) shown. Read by mother and daughter. 
+ 4. [Lecture Demonstrations](https://sanskrit.org.in/lec-dems-camps.html) page shown. 
 
 ## Satvik Lunch together
  1.  Sambhar chawal, pumpkin sabzi. 
