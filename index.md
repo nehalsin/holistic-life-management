@@ -14,10 +14,6 @@ Life is sum total. And thus, friends to support and receive positive vibes from 
 
 ## Inspiring Stories
 
-
-### April 2023
-1. **Live life with Masti:** [Dhwani and parents 2023-04-14](dhwani.md)
-
 ### August 2022
 1. **Slow Windows Operating System problem:** [Devansh, 45, Canada](devansh.md)
 
