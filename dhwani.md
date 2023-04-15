@@ -41,14 +41,14 @@
  2. Can become perfect in Mathematics using paper pencil or computer. 
  3. Some basic geometry on paper. Cartesian to polar transformation and vice versa.
  4. Knowing conventions is most important. 
- 5. Can have daily early morning sessions of Mathematics till we are in Dehradun. 
+ 5. Can have daily early morning sessions of Mathematics till we are here. 
  6. Wants to improve memory. Shall memorize Gita for the same.
  7. Satvik food is a great saviour.
 
 ## Father of Dhwani 
  1. Has interest in spirituality. Radhaswamis. 
  2. Does Seva in their ashrams. That's how he likes to spend his time besides house and court. 
- 3. Grand father lives in Radhaswami Beas since 1947. DoB 1939. Dadi DoB 1940.
+ 3. Grand father lives in Radhaswami Ashram since 1947. DoB 1939. Dadi DoB 1940.
  
 ## Dhwani 
  1. Will be memorizing Bhagavad Gita as per a friend. 
